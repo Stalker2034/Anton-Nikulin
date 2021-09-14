@@ -8,7 +8,7 @@ Choisissez des emplois qui pourraient vous intéresser.
 
 Ubisoft Montréal offre un poste d'animateur de cinématiques. Si je prend cet emplois, je serai chargé de décors cinématographiques animés pour des jeux tels que Farcry et AC'. Mon devoir sera de synchroniser l'engin et le build pour assurer que mes animations fonctionent avec le code du jeu et les dernières animations dèja fait. Si aucune autre animation n'est faite, j'aurais le travail de préparer le produit brut dans un état de fonctionnement. En prenant les images mocap et en les testant pour qu'ils devient fonctionelent. Bien sûr, malheureusement j'aurais besoin d'avoir une expérience de travail avec des moteurs de modélisation tels que Maya. Je crois que je voudrais ce travail, parce qu'avec les limitations des jeux, un animateur cinématographique est ce qui se rapproche le plus d'un réalisateur de film.
 
-### Emploi 2 - Texture Artist - Helix
+### Emploi 2 - Artiste de texture - Helix
 
 Ubisoft Montréal offre le travail d'un artiste texture Helix. Pour cet emploi, je doit avoir l'expérience en texturation, modélisation, éclairage, ou autre expérience connexe,
 avoir la connaissance des outils d'art 2D (par exemple Photoshop) et une familiarité avec le logiciel 3D Maya + les moteurs de jeux (par exemple Unity ou Unreal). Je devrais principalement créer des textures à partir de zéro, des références ou des numérisations. Ce travail semble être une bonne choix pour moi après avoir tout appris sur les outils d'Adobe. Mais je pense que cela pourrait aussi devenir repetitife après avoir travaillé pendant un certain temps à faire les mêmes textures.
