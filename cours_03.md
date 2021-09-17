@@ -21,7 +21,6 @@ Une future carrière possible chez Ubisoft est celle d'un Lead Artist. Dans ce p
 
 CD PROJEKT RED est à la recherche d'un Gameplay Designer talentueux pour rejoindre son équipe à Varsovie. Si je décide d'accepter le poste, je conçois, prototypage, scénarise et perfectionne des systèmes et des fonctionnalités de jeu à l'aide d'un moteur de jeu propriétaire et d'outils de script. La mauvaise nouvelle est que je dois avoir au moins 3 ans d'expérience professionnelle dans l'industrie du jeu vidéo, c'est donc un travail que je pourrais accepter si ma carrière chez Ubisoft venait à se terminer. La raison pour laquelle je pourrais apprécier ce travail, c'est que la conception du gameplay est l'un des principaux points à l'intérieur de la conception de jeux, et honnêtement, si je devais travailler avec des jeux, je voudrais travailler sur quelque chose d'intéressant.
 
-4 à 5 lignes
 
 ### Emploi 5 - Scénariste
 
