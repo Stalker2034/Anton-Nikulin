@@ -17,9 +17,10 @@ avoir la connaissance des outils d'art 2D (par exemple Photoshop) et une familia
 
 Une future carrière possible chez Ubisoft est celle d'un Lead Artist. Dans ce poste, je travaillerais avec des artistes 2D et 3D utilisant le logiciel 3D et Photoshop pour créer des illustrations magistrales du concept à la réalisation qui captivent l'attention des téléspectateurs et offrent des expériences percutantes. Bien sûr, j'aurais besoin d'avoir une expertise senior en art numérique et photo, avoir de  l'expérience avérée de la gestion avec succès des rapports directs et avoir des connaissances avancées en Maya. Je pense que si je continuais à travailler pour Ubisoft pendant de nombreuses années, devenir un artiste principal pourrait être un objectif important. Mais avoir une charge aussi lourde pourrait être un problème pour moi car je ne suis pas un chef d'équipe naturel.
 
-4 à 5 lignes 
+### Emploi 4 - Gameplay Designer
 
-### Emploi 4 - Identification
+CD PROJEKT RED est à la recherche d'un Gameplay Designer talentueux pour rejoindre son équipe à Varsovie. Si je décide d'accepter le poste, je conçois, prototypage, scénarise et perfectionne des systèmes et des fonctionnalités de jeu à l'aide d'un moteur de jeu propriétaire et d'outils de script.
+
 4 à 5 lignes
 
 ### Emploi 5 - Identification
