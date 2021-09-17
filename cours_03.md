@@ -13,7 +13,10 @@ Ubisoft Montréal offre un poste d'animateur de cinématiques. Si je prend cet e
 Ubisoft Montréal offre le travail d'un artiste texture Helix. Pour cet emploi, je doit avoir l'expérience en texturation, modélisation, éclairage, ou autre expérience connexe,
 avoir la connaissance des outils d'art 2D (par exemple Photoshop) et une familiarité avec le logiciel 3D Maya + les moteurs de jeux (par exemple Unity ou Unreal). Je devrais principalement créer des textures à partir de zéro, des références ou des numérisations. Ce travail semble être une bonne choix pour moi après avoir tout appris sur les outils d'Adobe. Mais je pense que cela pourrait aussi devenir repetitife après avoir travaillé pendant un certain temps à faire les mêmes textures.
 
-### Emploi 3 - Identification
+### Emploi 3 - Lead Artist
+
+Une future carrière possible chez Ubisoft est celle d'un Lead Artist. Dans ce poste, je travaillerais avec des artistes 2D et 3D utilisant le logiciel 3D et Photoshop pour créer des illustrations magistrales du concept à la réalisation qui captivent l'attention des téléspectateurs et offrent des expériences percutantes. Bien sûr, j'aurais besoin d'avoir une expertise senior en art numérique et photo, avoir de  l'expérience avérée de la gestion avec succès des rapports directs et avoir des connaissances avancées en Maya. Je pense que si je continuais à travailler pour Ubisoft pendant de nombreuses années, devenir un artiste principal pourrait être un objectif important. Mais avoir une charge aussi lourde pourrait être un problème pour moi car je ne suis pas un chef d'équipe naturel.
+
 4 à 5 lignes 
 
 ### Emploi 4 - Identification
