@@ -23,6 +23,9 @@ CD PROJEKT RED est à la recherche d'un Gameplay Designer talentueux pour rejoin
 
 4 à 5 lignes
 
-### Emploi 5 - Identification
-4 à 5 lignes
+### Emploi 5 - Scénariste
+
+Ubisfot propose un poste de scénariste, pour ce travail je devrais développer les éléments narratifs embarqués et émergents qui composent un monde vivant, respirant et réactif. Qu'il s'agisse d'une histoire ou d'un jeu axé sur le gameplay, je vais créez du contenu qui donne un sens aux personnes, aux lieux et aux choses qui s'y trouvent. Mais comme point négatif, j'aurais besoin d'un diplôme en écriture créative, littérature, cinéma, ou au moins 5 ans d'expérience en rédaction. Si toutes mes études sur Adobe et d'autres programmes échouent, alors je voudrais essayer de travailler comme scénariste, car c'est quelque chose que je voulais faire d'une manière ou d'une autre.
+
+
 
