@@ -8,16 +8,22 @@ Je commencerais simplement par m'occuper de moi, puis je passerais à mes intér
 Je dirais que je suis né à Vladivostok en Russie et comment j'ai immigré ici. Ensuite, nous parlerons des choses qui me font, comme mon amour pour le plein air.
 
 ### Intérêts dans le domaine
-Parlez de vos intérêts en multimédia. 
+
+Je vais suivre cela en parlant de mes intérêts pour le multimédia. que je suis intéressé à apprendre à utiliser le design graphique et mon amour pour l'animation.
 
 ### Emplois qui vous intéressent
-Nommez deux emplois.
+
+Les métiers que j'aimerais un jour avoir sont le scénariste en chef et le directeur de création.
 
 ### Identification
-Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
+
+11 Bits Studio est une companie de jeux basée en Pologne qui est responsable pour la création de Frostpunk et de This war of mine. Des jeux qui obligent à faire des choix qui mettent votre moral à l'épreuve.
 
 ### Dans 5 ans
-Où vous voyez-vous dans 5 ans? 
+
+
+Je serais très probablement hors de l'école à ce moment-là et j'aurais déjà un emploi dans une entreprise multimédia.
 
 ### Projets
-Expliquez un ou des projets que vous aimeriez faire. 
+
+Je voudrais simplement pouvoir faire un film, dans n'importe quel style d'animation ou d'action en direct. C'est quelque chose que je voudrais essayer et tester mes limites.
