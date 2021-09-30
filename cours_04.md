@@ -1,8 +1,11 @@
 # Cours 4
 ## Plan de présentation
 
+Je commencerais simplement par m'occuper de moi, puis je passerais à mes intérêts. Ensuite, je prévois de discuter de mes futurs projets de carrière et du type de travail que j'aimerais avoir. Et enfin je parlerai de mes cinq prochaines années et du projet multimédia que j'aimerais un jour réaliser.
+
 ### Présentation
-Parlez de vous. 
+
+Je dirais que je suis né à Vladivostok en Russie et comment j'ai immigré ici. Ensuite, nous parlerons des choses qui me font, comme mon amour pour le plein air.
 
 ### Intérêts dans le domaine
 Parlez de vos intérêts en multimédia. 
